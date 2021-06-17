@@ -1,7 +1,7 @@
 
 How to make Kerala style Sambar :
 
-1. Soak tamarind in 1/2 cup of warm water for sometime, squeeze and take the extract from it. Keep aside. 2. Pressure cook toor daal with water 1/4 tsp of tumeric powder and salt for 4- 5 whistle.
+1. Soak tamarind in 1/2 cup of warm water for sometime, squeeze and take the extract from it. Keep aside, Pressure cook toor daal with water 1/4 tsp of tumeric powder and salt for 4- 5 whistle.
 3. After the pressure settles open the cooker and add the vegetables, which are slow to cook like potatoes,drumsticks.
 4. Meanwhile in a frying pan add 1 tbsp of coconut oil and throw the chopped ladies finger, saute it well; now add handful of small onion and saute till it become transparent, followed by chopped tomato; reduce the flame to medium and close pan and cook for couple of mins. Remove from the fire and keep it aside.
 5. Now add the tamarind juice to cooked dal vegetable mixtures; stir and simmer on low flame for some more time, add more salt if needed.
